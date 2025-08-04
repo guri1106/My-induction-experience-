@@ -1,5 +1,5 @@
 # My-induction-experience-
-## H1 DAY 1
+## DAY 1
 <br>
 ##Induction Program
 <br>
