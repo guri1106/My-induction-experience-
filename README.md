@@ -18,12 +18,18 @@ Dr. Harpreet Kaur Grewal (HOD, Applied Sciences)
 <br>
 Dr. Akshay Girdhar (Dean Academics)
 <br>
-Guests of Honour
+Guests of Honour :
+<br>
 Er. Ravinder Garg (Chief Engineer, Municipal Corporation Ludhiana) 
 <br> 
 Er. Rakesh Kumar (GNDEC Alumnus, ADC Ludhiana) 
 <br>
 They shared their valuable journeys. Their words motivated us to stay focused and grow with strong values and a clear vision.
+
+
+<br>
+Day 2 – 1st August 2025
+Today’s induction session was held in the college auditorium. The day was filled with purpose, from learning core values to developing important skills.
 
 
 
