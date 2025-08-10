@@ -29,7 +29,8 @@ They shared their valuable journeys. Their words motivated us to stay focused an
 
 <br>
 <br>
-# *Day 2*
+
+# Day 2
 <br>
 
 Today’s induction session was held in the college auditorium. The day was filled with purpose, from learning core values to developing important skills.
@@ -68,7 +69,7 @@ The day ended with smiles, learning, and motivation.
 Day 3 reminded us that real success starts with self-discovery, courage, and the will to keep growing.
 <br>
 <br>
-✨ # *Day 4 – #A Day of Learning and Self-Discovery* ✨
+✨ # Day 4 – A Day of Learning and Self-Discovery ✨
 <br>
 
 The fourth day of our induction program began with an energizing English session by prof. Astik Sharma. We introduced ourselves and explored the importance of communication skills — the art of expressing ourselves with clarity and confidence. He also gave us a small but meaningful assignment to practice what we learned.
