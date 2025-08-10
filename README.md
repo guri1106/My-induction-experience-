@@ -45,7 +45,8 @@ Dr. Arashdeep Singh on wellness – how healthy food and habits are key to overa
 <br>
  The session truly motivated us to move ahead with confidence and a positive mindset. 🌟
 
-*Day 3*- 
+# *Day 3*- 
+<br>
 The day was full of energy, learning, and deep reflection for CSE & IT freshers. Each session was designed to inspire, guide, and uplift the students.
 <br>
  • *Dr. Priya Darshini* continued with her thoughtful session on Universal Human Values – enriching young minds with clarity and purpose. 
@@ -55,10 +56,12 @@ The day was full of energy, learning, and deep reflection for CSE & IT freshers.
 <br>
 
 *Dr.jaswinder singh*
-Fun demonstrations in Physics and Math made learning exciting and simple.
+<br>
+fun demonstrations in Physics and Math made learning exciting and simple.
 Students also appeared for English & Math proficiency tests to check their current level and improve further.
 
 Buddy4study teams guided students about scholarships and growth opportunities in college.
+<br>
 
 The day ended with smiles, learning, and motivation.
 Day 3 reminded us that real success starts with self-discovery, courage, and the will to keep growing.
