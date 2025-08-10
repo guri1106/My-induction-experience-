@@ -88,5 +88,21 @@ The day ended with a fun and engaging interactive session by the Causmic Club, f
 
 Day 4 was not just about learning — it was about self-awareness, values, and the journey toward becoming a better human being.
 
+<br>
+<br>
+# Day 5
+<br>
+<br>
+Our day began with the Peer-to-Peer session conducted by our seniors. They introduced us to the basics of the C++ programming language, explaining its purpose, where it is used, and giving us a brief overview of different types of programs.
+<br>
+<br>
+
+After that, we attended the Basic Electrical and Electronics Engineering (BEEE) lecture by Professor Simranjeet Kaur. She began with a short introduction, then explained the syllabus in detail and discussed the subject-related topics we will be studying.
+<br>
+<br>
+
+Next, we had a class with our Physics faculty, who guided us about the laboratory experiments we will be performing during the semester, along with their objectives and procedures.
+
+<br>
 
 
