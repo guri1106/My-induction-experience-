@@ -67,6 +67,7 @@ Buddy4study teams guided students about scholarships and growth opportunities in
 The day ended with smiles, learning, and motivation.
 Day 3 reminded us that real success starts with self-discovery, courage, and the will to keep growing.
 <br>
+<br>
 ✨ # Day 4 – #A Day of Learning and Self-Discovery ✨
 <br>
 
@@ -77,9 +78,13 @@ Next, we attended a Chemistry lecture by prof. Karan Bhalla, which started with 
 <br>
 
 After a short break, we gathered in the auditorium for a deeply inspiring session on Universal Human Values by Ms. Priya Darshani. She spoke about how real happiness comes from within — through right understanding, right feelings, and a sense of responsibility. We discussed how our emotions often fluctuate between excitement and feeling low, and how continuous happiness comes from inner harmony rather than outside conditions. She also guided us through activities to reflect on our needs — both continuous needs of the self (like respect and relationships) and temporary needs of the body (like food and comfort). We learned to classify our aspirations, recognize our natural acceptance for harmony, and think about ways to resolve our concerns by understanding their root causes. Her talk encouraged us to look within ourselves for long-lasting peace and joy.
+
 <br>
+
 The day ended with a fun and engaging interactive session by the Causmic Club, filled with activities that boosted our creativity, teamwork, and confidence.
+
 <br>
+
 Day 4 was not just about learning — it was about self-awareness, values, and the journey toward becoming a better human being.
 
 
