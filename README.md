@@ -104,5 +104,7 @@ After that, we attended the Basic Electrical and Electronics Engineering (BEEE) 
 Next, we had a class with our Physics faculty, who guided us about the laboratory experiments we will be performing during the semester, along with their objectives and procedures.
 
 <br>
+It was a day filled with knowledge, motivation, and the excitement of stepping deeper into our academic journey.
+
 
 
