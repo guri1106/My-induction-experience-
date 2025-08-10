@@ -1,9 +1,9 @@
 # My-induction-experience-
 # DAY 1
 <br>
-## Induction Program
+Induction Program
 <br>
-### ON 31 JULY , the induction program started with Path and Kirtan at the college Gurudwara Sahib, creating a peaceful and positive atmosphere for a new beginning. The students attended a college orientation session where they were introduced to the college's achievements, goals, and values. A detailed presentation was shown, helping students understand the vision of the institute and what is expected from them during their time here.
+ON 31 JULY , the induction program started with Path and Kirtan at the college Gurudwara Sahib, creating a peaceful and positive atmosphere for a new beginning. The students attended a college orientation session where they were introduced to the college's achievements, goals, and values. A detailed presentation was shown, helping students understand the vision of the institute and what is expected from them during their time here.
 <br>
 Later, a motivational session was held where speakers shared their personal college experiences. <br>Dr. Sehajpal Singh ,Dr. Harpreet Kaur Grewal  and Dr. Akshay Girdhar_<br> spoke about the importance of hard work, time management, and being part of extracurricular activities. Their stories encouraged students to believe in themselves and make the most of every opportunity.
 <br>
@@ -29,7 +29,8 @@ They shared their valuable journeys. Their words motivated us to stay focused an
 
 <br>
 <br>
-Day 2 – 1st August 2025
+# Day 2 – 1st August 2025
+
 Today’s induction session was held in the college auditorium. The day was filled with purpose, from learning core values to developing important skills.
 <br>
 
